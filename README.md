@@ -1,6 +1,6 @@
 ### Hi all, I'm Federico🙂 - AKA FedeCangio
 
-### I'm a almost 16 years old student.🔥
+### I'm a 16 years old student.🔥
 
 #### Follow me on:
 

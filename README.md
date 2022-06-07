@@ -4,7 +4,6 @@
 
 #### Follow me on:
 
-[<img src="https://img.icons8.com/dusk/48/000000/web.png"/>](https://federicocangiotti.github.io/)
 [<img src="https://img.icons8.com/fluency/48/000000/instagram-new.png"/>](https://www.instagram.com/federico_cangiotti/)
 [<img src="https://img.icons8.com/color/48/000000/twitter.png"/>](https://twitter.com/FedeCangio)
 
